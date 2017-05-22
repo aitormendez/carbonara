@@ -80,7 +80,7 @@ Después de escurrir los espaguetis en el escurridor (no dejes agua a propósito
 
 Ahora echaremos el queso, mientras removemos, no vayan a formarse pegotes de queso con el calor. El queso derretido se integrará posteriormente con el huevo y algo de la grasa del bacon, produciendo una mezcla suave. De ahí que sea motivo de querella la adición posterior del queso. Hay que añadirlo en este punto exacto.
 
-Después echaremos el huevo mientras movemos los espaguetis para que se mezcle con el queso, pero hay que tener cuidado. Si bien en la fase anterior (echar la mantequilla y el queso) necesitábamos calor para derretir, en esta fase ocurre todo lo contrario. Es necesario que el huevo no se cuaje. Por tanto, habrá que tomar medidas oportunas. Por ejemplo, si estamos utilizando una olla gruesa de barro que conserva el calor hay que bajar la temperatura antes del primer paso (echar los espaguetis después de escurrilos).
+Después echaremos el huevo mientras movemos los espaguetis para que se mezcle con el queso, pero hay que tener cuidado. Si bien en la fase anterior (echar la mantequilla y el queso) necesitábamos calor para derretir, en esta fase ocurre todo lo contrario. Es necesario que el huevo no se cuaje. Por tanto, habrá que tomar las medidas oportunas. Por ejemplo, si estamos utilizando una olla gruesa de barro que conserva el calor hay que bajar la temperatura antes del primer paso (echar los espaguetis después de escurrirlos).
 
 Después añadimos el bacon.
 
