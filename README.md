@@ -59,7 +59,7 @@ Echa los espaguetis y muévelos inmediatamente para que no se peguen unos a otro
 
 #### bacon o chorizo
 
-Corta el bacon en trozos pequeños y ponlos en una sartén a fuego más o menos lento para que la sude la grasa poco a poco. Si te gusta un poco crugiente, como a mí, dale un toque de calor más fuerte al final.
+Corta el bacon en trozos pequeños y ponlos en una sartén a fuego más o menos lento para que sude la grasa poco a poco. Si te gusta un poco crugiente, como a mí, dale un toque de calor más fuerte al final.
 
 Para la versión *chorizara* sustituye el bacon por el chorizo utilizando el mismo algoritmo de producción.
 
