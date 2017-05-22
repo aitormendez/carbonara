@@ -5,7 +5,7 @@ Aprendí a hacer espaguetis carbonara, siendo yo niño, de mi padre, que en su i
 
 Durante algún periodo de nevera vacía de mi adolescencia, tratando de adaptar la receta a las existencias, sustituí el bacon por chorizo cortado en trozos pequeñitos y fritos hasta quedar crujientes. Lo que en un principio fue un imperativo económico se transformó en una variación de la receta tan rica como la original (al menos, para mí), enlazando directamente con una de nuestras tradiciones culinarias más rancias y kitch: los macarrones con chorizo. A estos espaguetis los he llamado *chorizara*
 
-\* un cálculo de una vez a la semana durante cuarenta años arroja un resultado de 2086 platos de espaguetis.
+\* un cálculo de frecuencia de una vez a la semana durante cuarenta años arroja un resultado de 2086 platos de espaguetis.
 
 ![Alt text](images/intro/gente_seria_y_con_bigote-500px.jpg?raw=true "Title")
 
