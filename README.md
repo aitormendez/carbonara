@@ -35,7 +35,7 @@ Echar nata a los espaguetis carbonara implica una condena incondicional al calab
 
 Hay que poner una olla grande con abundante agua al fuego y echar la sal. Lo de la abundancia es relativo, porque no hay evidencias de que exista diferencia medible entre unos espaguetis hechos con bastante agua y otros con mucha agua. Intenta que los espaguetis se muevan con soltura, como angulas en el agua, pero busca el límite para no derrochar energía calentando agua que no implica valor diferencial.
 
-Sí hay que echar una cantidad grande de sal porque se disolverá en el agua y, al final, casi todo ese agua se irá por el fregadero, junto con la mayoría de la sal. Sin embargo, da exactamente igual cuándo eches el agua. La solución salina eleva ligeramente el punto de ebullición, pero se eleva igual tanto si la echas antes como después.
+Sí hay que echar una cantidad grande de sal porque se disolverá en el agua y, al final, casi todo ese agua se irá por el fregadero, junto con la mayoría de la sal. Sin embargo, da exactamente igual cuándo eches la sal. La solución salina eleva ligeramente el punto de ebullición, pero se eleva igual tanto si la echas antes como después.
 
 Dejo la fórmula para calcular la cantidad de sal (sobra decir que hay que utilizar la misma unidad de medida para todo. Por ejemplo, gramos).
 
