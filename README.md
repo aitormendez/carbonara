@@ -20,7 +20,7 @@ Foto: Gente seria y con bigote. © Aitor Méndez CC BY-NC-SA 4.0
 5. Queso emmental: 100 g.
 6. Mantequilla: 75 g.
 7. Oregano
-8. Piemienta
+8. Pimienta
 8. Sal
 
 ## Elaboración
