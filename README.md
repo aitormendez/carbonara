@@ -39,6 +39,7 @@ Sí hay que echar una cantidad grande de sal porque se disolverá en el agua y, 
 
 Dejo la fórmula para calcular la cantidad de sal (sobra decir que hay que utilizar la misma unidad de medida para todo. Por ejemplo, gramos, arrobas o quintales cortos).
 
+---
     Siendo:
     E  = Cantidad de espaguetis que se utilizan
     S1 = Cantidad de sal que echarías a esa cantidad de espaguetis si no tuvieran agua
