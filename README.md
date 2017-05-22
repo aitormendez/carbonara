@@ -75,7 +75,7 @@ La ortodoxia se limita al parmesano o al padano, así que aquí me desmarco aña
 
 Al final hay que mezclarlo todo, pero teniendo en cuenta ciertas variables, pues aquí aparecen serias posibilidades de arruinar el plato.
 
-Después de escurrir los espaguetis en el escurridor (no dejes agua a propósito, por favor) devuévelos a la olla vacía. Inmediátamente, añade la mantequilla y engrasa bien y de manera uniforme los espaguetis, removiendo y dejando que ésta se derrita. Algunas personas se asustan cuando me ven echar la mantequilla, pero los espaguetis han de estar convenientemente engrasados y parece que ya ha quedado bastante claro que la obesidad y los problemas cardiovasculares no tienen prácticamente nada que ver con la ingesta de grasa animal. El aroma de los espaguetis con la mantequilla es delicioso y evocador.
+Después de escurrir los espaguetis en el escurridor (no dejes agua a propósito, por favor) devuévelos a la olla vacía. Inmediátamente, añade la mantequilla y engrasa bien y de manera uniforme los espaguetis, removiendo y dejando que ésta se derrita. Algunas personas se escandalizan cuando me ven echar la mantequilla, pero los espaguetis han de estar convenientemente engrasados y parece que ya ha quedado bastante claro que la obesidad y los problemas cardiovasculares no tienen prácticamente nada que ver con la ingesta de grasa animal. El aroma de los espaguetis con la mantequilla es delicioso y evocador.
 
 Ahora echaremos el queso, mientras removemos, no vayan a formarse pegotes de queso con el calor. El queso derretido se integrará porteriormente con el huevo y algo de la grasa del bacon, produciendo una mezcla suave. De ahí que sea motivo de querella la adición posterior del queso. Hay que añadirlo en este punto exacto.
 
