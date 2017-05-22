@@ -70,7 +70,7 @@ Bate los huevos y añade sal y pimienta.
 
 #### Queso
 
-La ortodoxia se limita al parmesano o al padano, así que aquí me desmarco añadiendo emmental. Lo hago así desde pequeño y me encanta. Hay que rayar los dos quesos (parmesano + emmental) teniendo cuidado de mezclarlos bien porque al añadirlos al final el emmental tiende a formar pegotes. Mezclándolo con el parmesano se evita, en gran medida, este desagradable efecto.
+La ortodoxia se limita al parmesano o al padano, así que aquí me desmarco añadiendo emmental. Lo hago así desde pequeño y me encanta. Hay que rallar los dos quesos (parmesano + emmental) teniendo cuidado de mezclarlos bien porque al añadirlos al final el emmental tiende a formar pegotes. Mezclándolo con el parmesano se evita, en gran medida, este desagradable efecto.
 
 ### Mezcla final
 
