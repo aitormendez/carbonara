@@ -37,7 +37,7 @@ Hay que poner una olla grande con abundante agua al fuego y echar la sal. Lo de 
 
 Sí hay que echar una cantidad grande de sal porque se disolverá en el agua y, al final, casi todo ese agua se irá por el fregadero, junto con la mayoría de la sal. Sin embargo, da exactamente igual cuándo eches la sal. La solución salina eleva ligeramente el punto de ebullición, pero se eleva igual tanto si la echas antes como después.
 
-Dejo la fórmula para calcular la cantidad de sal (sobra decir que hay que utilizar la misma unidad de medida para todo. Por ejemplo, gramos).
+Dejo la fórmula para calcular la cantidad de sal (sobra decir que hay que utilizar la misma unidad de medida para todo. Por ejemplo, gramos, arrobas o quintales cortos).
 
     Siendo:
     E  = Cantidad de espaguetis que se utilizan
